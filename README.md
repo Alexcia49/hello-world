@@ -1,3 +1,3 @@
 # hello-world
-bae takes too many selfies
-reposity.1. 
+Bae takes way too many selifes
+but he looks good doing it.  
