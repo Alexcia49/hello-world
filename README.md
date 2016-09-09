@@ -1,3 +1,2 @@
 # hello-world
-Bae takes way too many selifes
-but he looks good doing it.  
+I'm sitting at Brew and Brew, realizing this city is too populated.  
